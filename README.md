@@ -44,3 +44,6 @@ supressão ou modificações daquelas já existentes.
 Para quaisquer dúvidas e sugestões sobre a Política de Privacidade, entre em contato
 conosco por meio dos emails abaixo:
 phenrique_h2016@hotmail.com
+mendes-julia@outlook.com
+moraes.luana@unifesp.br
+martinsisabelle243@gmail.com
